@@ -1,2 +1,2 @@
 1. Prologue -
-	 * "The city is burning!"
+	 * "The city is burning!", they royal family and high standing officials are killed in a violent revolution planed by an insider, a traitor. the capital is burned to the ground with many casualties. 
